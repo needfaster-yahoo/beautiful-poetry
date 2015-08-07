@@ -11,7 +11,7 @@ And be one traveler, long I stood 　　       我在那路口久久伫立
 And looked down one as far as I could 　　   我向着一条路极目望去
 To where it bent in the undergrowth; 　　　  直到它消失在丛林深处
 Then took the other, as just as fair, 　　   但我却选择了另外一条路 　　
-And having perhaps the better claim, 　　　　 它荒草萋萋，十分幽寂
+And having perhaps the better claim, 　　　　它荒草萋萋，十分幽寂
 Because it was grassy and wanted wear; 　    显得更诱人，更美丽　
 Though as for that the passing there 　　    虽然在这两条小路上
 Had worn them really about the same, 　　    都很少留下旅人的足迹
