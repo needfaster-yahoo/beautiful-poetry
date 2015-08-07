@@ -12,10 +12,12 @@ And he was always quietly arrayed,
 And he was always human when he talked;          
 But still he fluttered pulses when he said,      
 "Good-morning," and he glittered when he walked. 
+
 And he was rich - yes, richer than a king -      
 And admirably schooled in every grace;           
 In fine we thought that he was everything        
-To make us wish that we were in his place.       
+To make us wish that we were in his place.  
+
 So on we worked, and waited for the light,       
 And went without the meat, and cursed the bread; 
 And Richard Cory, one calm summer night,         
